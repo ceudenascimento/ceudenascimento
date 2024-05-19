@@ -2,6 +2,7 @@
 - 👯 I'm student of information in Catholic University of Pernambuco
 - 🤔 I live in Recife, Brazil
 - 💬 I love things like art, draw, paint, tarot, gym and coffe break
-- 📫 I'm looking collaborate in any projects, specially inside data area
+- 💞️ I'm looking collaborate in any projects, specially inside data area
 - 😄 Pronouns: he/she/they
+- 📫 if you send me any message you can make this in one contact: +55 81988464047 or my email address crude nascimento@gmail.com
 - ⚡ Fun fact: I speak french and i love Henri Matisse
