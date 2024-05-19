@@ -4,5 +4,5 @@
 - 💬 I love things like art, draw, paint, tarot, gym and coffe break
 - 💞️ I'm looking collaborate in any projects, specially inside data area
 - 😄 Pronouns: he/she/they
-- 📫 if you send me any message you can make this in one contact: +55 81988464047 or my email address crude nascimento@gmail.com
+- 📫 Can you send a message for my contacts: +55 81988464047 or my email address ceudenascimento@gmail.com
 - ⚡ Fun fact: I speak french and i love Henri Matisse
