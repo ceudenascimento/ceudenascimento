@@ -1,8 +1,8 @@
 - 🌱 Hi i'm a @ceudenascimento
-- 👯 I'm student of information in Catholic University of Pernambuco
-- 🤔 I live in Recife, Brazil
-- 💬 I love things like art, draw, paint, tarot, gym and coffe break
-- 💞️ I'm looking collaborate in any projects, specially inside data area
+- 📚 I'm student of information in Catholic University of Pernambuco
+- 📍 I live in Recife, Brazil
+- 💕 I love things like art, draw, paint, tarot, gym and coffe break
+- 🔍 I'm looking collaborate in any projects, specially inside data area
 - 😄 Pronouns: he/she/they
 - 📫 Can you send a message for my contacts: +55 81988464047 or my email address ceudenascimento@gmail.com
 - ⚡ Fun fact: I speak french and i love Henri Matisse
