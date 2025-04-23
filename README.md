@@ -1,5 +1,5 @@
 - 🌱 Hi i'm a @ceudenascimento
-- 📚 I'm student of information in Catholic University of Pernambuco
+- 📚 Currently i'm student of information in Catholic University of Pernambuco
 - 📍 I live in Recife, Brazil
 - 💕 I love things like art, draw, paint, tarot, gym and coffe break
 - 🔍 I'm looking collaborate in any projects, specially inside data area
